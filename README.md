@@ -51,7 +51,7 @@ Despite the lower online AOV, **overall revenue and profit hit record highs**.
 ## 🧭 Takeaway
 
 Between 2003 and 2004, the company proved it could scale without losing balance.  
-Offline sales continued to generate most of the revenue, while the rapid online growth brought in new customers and diversified sales. While also seeing much success with newly introduced products.
+Offline sales continued to generate most of the revenue, while the rapid online growth brought in new customers and diversified sales. While also finding success with newly introduced products.
 
 ---
 
